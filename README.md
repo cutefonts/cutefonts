@@ -1,5 +1,3 @@
-## Hi there 👋
-
 Do you want to add charm and personality to your speech? Whether you are creating a social media post website design or a cute invitation card The right font can make all the difference. That's where our <a href="https://cutefonts.cc/">cute fonts generator</a> comes in. A fun and easy-to-use tool that helps you create beautiful, playful fonts to suit any occasion.
 
 Why Cute Fonts Matter
